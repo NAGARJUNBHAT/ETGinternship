@@ -1,1 +1,1 @@
-Elite Techno Groups, ML/AI Internship
+Elite Techno Groups, ML/AI Internship Assignment
